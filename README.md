@@ -1,7 +1,10 @@
-# ***Facundo Estrada***
+<img src="https://lh3.googleusercontent.com/a-/AOh14GjLo2P1_IOiPcoVSqweBzZzW8qdzzEg68u8suYaGg=s96-cc-rg"  width="80" height="80" />
+
+## ***Facundo Estrada***
 
 - **Legajo:** 9838
 - **Localidad:** Zárate
 - **Edad:** 25
 
-![Foto](https://lh3.googleusercontent.com/CNsx7nSez9CHqaJ16piu_RTTCSjIFYByX_upbLu8IkR5bjLhMIAsvtuvKGBinMMVFF1Vs4LDDlM9sYwWIhO5vVpLBA3McVvcH2UlJXaIPkVa71G8dKQAGOrLefNWq09kxXvqt2uwHWMBTOsHTt1O_0Nare6HFMotBZrLZGLuACcmoprpQkynIeJsuMPXfrObH2SFLFqG66YhkeCeguUPEPiCS9dgWHQqydHqO-kyyfe3E3JTil4dY_GagQ49MWs9Xm4Ek9Z1dFk7PiuNdOa2raoicaxv0J1KzYA-rP2kqndUdrWNeWUFurz3U8Z_EblROgbEC5ZQZES8RRHOnXbLIOkSlPmu-Uij3GrNI-ieljN79ulaw1Kj1oJVAPM9iVOZfsQDCB4H-tjb7kaXEeEmtVbMMkSFXA_5NqRoiS1JfHJ2vCZaebKj0DjIaK3RZ-Qf-CVF2YedNjuLw2BlGJKj4YjRKomvt1RG-Eu8KO0L2liKUkPsKt158KTZV6wkibYmn95e5p45bOm-4mt1Dw4Ds4ApS965HKWDhPXtusMlB7EGuNi4bR63kAnHG09ZwcbyTluJ3UQZq5sBbDBg681DOdbFiL0azQVMrHEvIvCsg6vaUC1heUamhz2CGI9bP0KfXoPM-6OHPZPNd2n9lyErhXN6vAX5F7iaiRdakTHF17lWw6hH_Xc8xa1kq1R32w=w604-h599-no =100x20)
+
+
